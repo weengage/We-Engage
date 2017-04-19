@@ -2,7 +2,7 @@
 
 We are a small London based consultancy specialising in user experience design for digital products.
 
-We believe life is too short for bad digital experiences :poop: . Now more than ever user demand and great experiences with digital products. We are here to serve users. Happy users lead to great products and conversion. :heart_eyes: :sparkles: 
+We believe life is too short for bad digital experiences :shit: . Now more than ever user demand and great experiences with digital products. We are here to serve users. Happy users lead to great products and conversion. :heart_eyes: :sparkles: 
 
 ### Our Clients
 
