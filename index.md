@@ -1,5 +1,11 @@
 ## User Experience and Design Consultancy
 
-Site is currently under construction
+We are a small London based consultancy specialising in user experience design for digital products.
 
-### We Engage Ltd, UK Company number 09573774
+We believe life is too short for bad digital experiences :poop: . Now more than ever user demand and great experiences with digital products. We are here to serve users. Happy users lead to great products and conversion. :heart_eyes: :sparkles: 
+
+### Our Clients
+
+Channel 4, With Reason, Sapient Nitro, RBS.
+
+We Engage Ltd, UK Company number 09573774
