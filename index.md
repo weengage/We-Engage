@@ -1,8 +1,10 @@
 ## User Experience and Design Consultancy
 
-We are a small London based consultancy specialising in user experience design for digital products.
+We are a London based consultancy specialising in user experience and interface design for digital products.
 
-We believe life is too short for bad digital experiences :shit: . Now more than ever user demand and great experiences with digital products. We are here to serve users. Happy users lead to great products and conversion. :heart_eyes: :sparkles: 
+We believe life is too short for bad digital experiences. Now more than ever users demand great experiences with digital products and services. We are here to serve users globally. 
+
+Happy users lead to great products which can change people's lives for the good. 
 
 ### Our Clients
 
